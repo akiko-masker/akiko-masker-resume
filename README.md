@@ -77,4 +77,4 @@ Bilingual in English and Japanese<br />
 
 <p><strong>Interaction Design in VR <a href="https://seekbeak.com/v/NYojXWgyz8e">CHASHITSU Project2018</a></strong><br />
   
-<em>I hope you enjoy them!</em></p>
+<em>I hope you enjoy!</em></p>
