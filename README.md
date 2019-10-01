@@ -2,7 +2,7 @@
 
 About Akiko
 
-Akiko Masker is a Visual Designer and Artist who is passionate about invigorating ideas and the process of turning those ideas into a tangible product. Process in particular has driven her to learn new and innovative ways to express her creativity. She especially enjoys solving visual problems for people, and to help giving them new means of looking at the world.  She loves to see how people react to designs that engage them, and to develop further designs based on how audiences perceive what she design is what drives her. <a href="https://akikomasker.myportfolio.com/projects">
+Akiko Masker is a Visual Designer and Artist who is passionate about invigorating ideas and the process of turning those ideas into a tangible product. Process in particular has driven her to learn new and innovative ways to express her creativity. She especially enjoys solving visual problems for people, and to help giving them new means of looking at the world.  She loves to see how people react to designs that engage them, and to develop further designs based on how audiences perceive what she design is what drives her.
 
 Professional Experience
 
@@ -49,6 +49,8 @@ Honors and Awards
 2018 American Advertising Awards,
 Silver ADDY, Logo Design
 Student Division, Seattle Central College, Seattle, WA
+
+
 2017 James D. Hoyt Memorial Scholarship
 Seattle Central College, Seattle, WA
 2010 Patricia and Jack Roberts Endowed Student Support Fund Scholarship
@@ -62,3 +64,7 @@ E-Commerce Design experience
 Printed collateral / Digital assets design
 UX / UI design
 Branding & IdentityContentExhibition designAdministrativeBilingual in English and Japanese
+
+<p> Here is my work <a href="https://akikomasker.myportfolio.com/projects">AkikoMasker-myportfolio</a><br />
+Please check this out</p>
+
