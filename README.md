@@ -19,12 +19,12 @@ GIRVIN | Strategic Branding & Design, Seattle, WA
 
 •Assisted with conceptualization, planning, and design of GIRVIN’s digitaland print marketing and advertising materials.•Collaborated with design team in creation of visual design strategy andassets used for social media and digital marketing campaign for internalclients.
 
-2017 Graphic Designer / Marketing Assistant
+2017 Graphic Designer and Marketing Assistant
 College of Arts & Sciences University of Washington, Seattle, WA
 •Work directly with specialists and other student workers within the College to support and execute a wide variety of marketing and communication projects.
 •Created visual assets, multiple page layout of brand guidelines, designed print collateral, and provided production support for department logos and brand assets for The Jackson School of international studies University of Washington rebranding project.
 
-2013-2016 Art Gallery Director / Exhibit Coordinator
+2013-2016 Art Gallery Director and Exhibit Coordinator:
 South Seattle College, Seattle, WA
 
 • Exhibition Planning & Management.
