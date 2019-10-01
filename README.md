@@ -50,3 +50,12 @@ Student Division, Seattle Central College, Seattle, WA
 Seattle Central College, Seattle, WA
 2010 Patricia and Jack Roberts Endowed Student Support Fund Scholarship
 University of Washington, Seattle, WA
+
+Focus
+
+Visual design
+Digital marketing and Advertising
+E-Commerce Design experience
+Printed collateral / Digital assets design
+UX / UI design
+Branding & IdentityContentExhibition designAdministrativeBilingual in English and Japanese
