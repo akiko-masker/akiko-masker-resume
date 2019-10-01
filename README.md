@@ -14,12 +14,12 @@ Run Studios Seattle, WA
 •Completed production tasks: file preparation, mounting, trimming, etc.
 •To provided design support by creating templates for layout communication materials for marketing purposes, creating/modifying graphics, and assisting with the maintenance of merchandise product design for labels.
 
-2019 Graphic Design Intern<br>
+2019 Graphic Design Intern<br><br />
 GIRVIN | Strategic Branding & Design, Seattle, WA
 
 •Assisted with conceptualization, planning, and design of GIRVIN’s digitaland print marketing and advertising materials.•Collaborated with design team in creation of visual design strategy andassets used for social media and digital marketing campaign for internalclients.
 
-2017 Graphic Designer and Marketing Assistant<br>
+2017 Graphic Designer and Marketing Assistant<br><br />
 College of Arts & Sciences University of Washington, Seattle, WA
 
 •Work directly with specialists and other student workers within the College to support and execute a wide variety of marketing and communication projects.
@@ -36,25 +36,28 @@ South Seattle College, Seattle, WA
 
 <strong>Education</strong><br>
 
-2018 Seattle Central College, Seattle, WA
-AAS in Graphic Design
-2011 University of Washington,Seattle, WA
-BFA in Painting and Drawing
-Magna Cum Laude
-2009 South Seattle College, Seattle, WA
-AA in Education
-Magna Cum Laude
+2018 Seattle Central College, Seattle, WA<br>
+AAS in Graphic Design<br>
+
+2011 University of Washington,Seattle, WA<br>
+BFA in Painting and Drawing<br>
+Magna Cum Laude<br>
+
+2009 South Seattle College, Seattle, WA<br>
+AA in Education<br>
+Magna Cum Laude<br />
 
 <strong>Honors and Awards</strong><br>
 
-2018 American Advertising Awards,
-Silver ADDY, Logo Design
-Student Division, Seattle Central College, Seattle, WA
+2018 American Advertising Awards<br>
+Silver ADDY, Logo Design<br>
+Student Division, Seattle Central College, Seattle, WA<br>
 
-2017 James D. Hoyt Memorial Scholarship
-Seattle Central College, Seattle, WA
-2010 Patricia and Jack Roberts Endowed Student Support Fund Scholarship
-University of Washington, Seattle, WA
+2017 James D. Hoyt Memorial Scholarship<br>
+Seattle Central College, Seattle, WA<br>
+
+2010 Patricia and Jack Roberts Endowed Student Support Fund Scholarship<br>
+University of Washington, Seattle, WA<br />
 
 <strong>Focus</strong><br>
 
@@ -66,8 +69,8 @@ UX / UI design<br>
 Branding & IdentityContent<br>
 Exhibition design<br>
 Administrative<br>
-Bilingual in English and Japanese<br>
+Bilingual in English and Japanese<br />
 
 <p><strong> Here is my work <a href="https://akikomasker.myportfolio.com/projects">AkikoMasker-myportfolio</a></strong><br />
-Please check this out!</p>
+<em>Please check this out!</em></p>
 
