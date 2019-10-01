@@ -7,7 +7,6 @@ Akiko Masker is a Visual Designer and Artist who is passionate about invigoratin
 Professional Experience
 
 2018 – Present Graphic Designer ( Contract )
-
 Run Studios Seattle, WA
 
 •Meet with Amazon internal clients via RUN Studios and to understandspecifications, content and delivery expectations and assist digital design needs.
@@ -16,7 +15,6 @@ Run Studios Seattle, WA
 •To provided design support by creating templates for layout communication materials for marketing purposes, creating/modifying graphics, and assisting with the maintenance of merchandise product design for labels.
 
 2019 Graphic Design Intern
-
 GIRVIN | Strategic Branding & Design, Seattle, WA
 
 •Assisted with conceptualization, planning, and design of GIRVIN’s digitaland print marketing and advertising materials.•Collaborated with design team in creation of visual design strategy andassets used for social media and digital marketing campaign for internalclients.
@@ -27,7 +25,6 @@ College of Arts & Sciences University of Washington, Seattle, WA
 •Created visual assets, multiple page layout of brand guidelines, designed print collateral, and provided production support for department logos and brand assets for The Jackson School of international studies University of Washington rebranding project.
 
 2013-2016 Art Gallery Director / Exhibit Coordinator
-
 South Seattle College, Seattle, WA
 
 • Exhibition Planning & Management.
