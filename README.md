@@ -33,8 +33,8 @@ South Seattle College, Seattle, WA<br>
 • To curate 24 exhibits and 12 workshops that showcase student, staff, and faculty artwork.<br>
 • To foster collaboration across campus and community (UW, SU, WS Art Walk org. Wing Luke Museum ) .<br>
 • To create professional exhibits that feature local and global artists.<br>
-• To support teaching and learning outside of the classroom.
-<br>
+• To support teaching and learning outside of the classroom.<br>
+
 <strong>Education</strong><br>
 
 2018 Seattle Central College, Seattle, WA<br>
