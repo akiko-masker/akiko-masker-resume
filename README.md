@@ -71,6 +71,8 @@ Exhibition design<br>
 Administrative<br>
 Bilingual in English and Japanese<br />
 
-<p><strong> Here is my work <a href="https://akikomasker.myportfolio.com/projects">AkikoMasker-myportfolio</a></strong><br />
-<em>Please check this out!</em></p>
+<p><strong> My work <a href="https://akikomasker.myportfolio.com/projects">AkikoMasker-myportfolio</a></strong><br />
 
+<p><strong>Interaction Design in VR <a href="https://seekbeak.com/v/NYojXWgyz8e">CHASHITSU Project2018</a></strong><br />
+  
+<em>Please check this out!</em></p>
